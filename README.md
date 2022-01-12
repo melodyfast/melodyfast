@@ -1,7 +1,5 @@
-im melody, but you can call me mel.
+hi im L, also known as communist_weed on twitch
 
 i like to make simple autosplitters for games i like, mostly lego games.
-
-you can reach me on discord, my tag is Mel#5678
 
 :)
